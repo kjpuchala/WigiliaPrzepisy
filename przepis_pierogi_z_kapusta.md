@@ -1,25 +1,25 @@
 # Pierogi z kapustą kiszoną i opcjonalnie suszonymi grzybami
 
-**Ilość:** ok. 100 sztuk
+**Ilość:** ok. 200 sztuk
 
 ---
 
-## Wszystkie ~~~~składniki (do listy zakupów)
+## Wszystkie składniki (do listy zakupów)
 
 ### Ciasto (wersja jasielska – z jajkiem, bez oleju):
 
-* 1,2 kg mąki pszennej (typ 450–500)
-* 730–800 ml gorącej wody
-* 2 jajka
-* 1 i 1/3 łyżeczki soli
+* 2,4 kg mąki pszennej (typ 450–500)
+* 1,46–1,6 l gorącej wody
+* 4 jajka
+* 2,6–2,7 łyżeczki soli
 
 ### Farsz z kapusty kiszonej:
 
-* 1 kg kapusty kiszonej
-* 1,5 dużej cebuli (lub 2 mniejsze)
-* 3 łyżki oleju rzepakowego (lub 1,5 łyżki masła klarowanego)
-* 40–50 g suszonych grzybów (opcjonalnie)
-* 1–1,5 łyżeczki kminku
+* 2 kg kapusty kiszonej
+* 3 duże cebule (lub 4 mniejsze)
+* 6 łyżek oleju rzepakowego (lub 3 łyżki masła klarowanego)
+* 80–100 g suszonych grzybów (opcjonalnie)
+* 2–3 łyżeczki kminku
 * sól, pieprz do smaku
 
 ---
@@ -41,7 +41,7 @@
 2. Dodać sól i jajka.
 3. Stopniowo wlewać gorącą wodę, wyrabiając ciasto.
 4. Wyrabiać **8–10 minut**, aż będzie elastyczne i gładkie.
-5. Przykryć i odstawić na **20–30 minut**.
+5. Przykryć i odstawić na **20–30 minut**, aby odpoczęło.
 
 ---
 

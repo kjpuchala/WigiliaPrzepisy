@@ -1,6 +1,6 @@
 # Pierogi ruskie – ciasto i farsz
 
-**Ilość:** ok. 150 sztuk
+**Ilość:** ok. 250 sztuk
 
 ---
 
@@ -8,22 +8,22 @@
 
 ### Ciasto (wersja jasielska – z jajkiem, bez oleju):
 
-* 1,8 kg mąki pszennej (typ 450–500)
-* 1,1–1,2 l gorącej wody
-* 2 jajka
-* 2 łyżeczki soli
+* 3 kg mąki pszennej (typ 450–500)
+* 1,85–2 l gorącej wody
+* 3–4 jajka
+* 3–3,5 łyżeczki soli
 
 ### Farsz ruskie (wersja jasielska):
 
-* 3 kg ziemniaków (mączystych)
-* 1,5 kg twarogu półtłustego
-* 900–1200 g cebuli
-* 4–5 łyżek masła lub smalcu
+* 5 kg ziemniaków (mączystych)
+* 2,5 kg twarogu półtłustego
+* 1,5–2 kg cebuli
+* 6–8 łyżek masła lub smalcu
 * sól, pieprz do smaku
 
 **Opcjonalnie:**
 
-* 1 łyżka śmietany (jeśli farsz jest zbyt suchy)
+* 2–3 łyżki śmietany (jeśli farsz jest zbyt suchy)
 
 ---
 
@@ -65,7 +65,7 @@
 3. Twaróg pokruszyć lub zmielić raz.
 4. Połączyć ziemniaki, twaróg i cebulę z tłuszczem.
 5. Doprawić solidnie solą i pieprzem.
-6. W razie potrzeby dodać odrobinę masła lub 1 łyżkę śmietany, aby farsz nie był zbyt suchy.
+6. W razie potrzeby dodać odrobinę masła lub 2–3 łyżki śmietany, aby farsz nie był zbyt suchy.
 
 ---
 
