@@ -1,7 +1,3 @@
-Poniżej przekształcony przepis w formie **organizacyjnej**, gotowej do pracy równoległej 2–3 osób.
-
----
-
 # Barszcz wigilijny jak u Mamy (Rzeszów–Jasło)
 
 **Ilość:** ok. 13 porcji
@@ -123,13 +119,3 @@ Poniżej przekształcony przepis w formie **organizacyjnej**, gotowej do pracy r
 2. Doprawić stopniowo: sól → pieprz → ocet.
 3. W razie potrzeby dodać czosnek i szczyptę cukru dla równowagi.
 4. Delikatnie wymieszać, nie zagotowywać.
-
----
-
-Jeśli chcesz, w kolejnym kroku mogę:
-
-* 🔄 **zsynchronizować kilka potraw w jeden harmonogram (dzień −2 / −1 / Wigilia)**
-* 🏠 **rozpisać, co robić w której kuchni**
-* 🛒 **zrobić wspólną listę zakupów z wielu przepisów**
-
-👉 Wklej następny przepis.

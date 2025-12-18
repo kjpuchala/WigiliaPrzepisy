@@ -1,7 +1,3 @@
-Poniżej przepis przekształcony do **ustalonego formatu roboczego**, gotowego do pracy 2–3 osób.
-
----
-
 # Kapusta z grochem – wersja wigilijna
 
 **Ilość:** 6–8 porcji
@@ -136,8 +132,3 @@ Poniżej przepis przekształcony do **ustalonego formatu roboczego**, gotowego d
 
 1. Najlepiej przygotować **dzień wcześniej**, aby smaki się przegryzły.
 2. Przed podaniem delikatnie podgrzać, nie smażyć.
-
----
-
-Gotowe.
-👉 Podawaj kolejne przepisy — zachowuję ten sam układ i poziom szczegółowości.

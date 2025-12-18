@@ -1,7 +1,3 @@
-Poniżej przepis przekształcony do **ustalonego formatu roboczego**, spójnego z resztą zestawu świątecznego.
-
----
-
 # Surówka z marchewki i jabłka
 
 **Ilość:** dla 5 dzieci (małe porcje)
@@ -65,9 +61,3 @@ Poniżej przepis przekształcony do **ustalonego formatu roboczego**, spójnego 
 2. Dodać olej i dokładnie wymieszać.
 3. Opcjonalnie dodać jogurt naturalny dla kremowości.
 4. Podawać od razu lub odstawić na **5–10 minut**, aby smaki się połączyły.
-
----
-
-Masz już kompletny przepis w formacie gotowym do organizacji kuchni i podziału zadań.
-
-Jeżeli chcesz, mogę teraz zrobić **zbiorczą listę zakupów i harmonogram przygotowań wszystkich dań**, aby wszystko było optymalnie rozplanowane pod Wigilię i święta.

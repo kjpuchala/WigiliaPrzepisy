@@ -1,7 +1,3 @@
-Poniżej przepis przekształcony do **ustalonego formatu roboczego**, spójnego z resztą zestawu świątecznego.
-
----
-
 # Śledzie z rodzynkami i curry
 
 **Ilość:** 3 filety (ok. 4–5 porcji, w zależności od wielkości porcji)
@@ -67,9 +63,3 @@ Poniżej przepis przekształcony do **ustalonego formatu roboczego**, spójnego 
 2. Całość zalać olejem, tak aby przykrył wszystkie składniki.
 3. Dokładnie wymieszać lub energicznie potrząsnąć w słoiku.
 4. Przechowywać w lodówce – można jeść od razu, ale najlepiej smakuje po kilku godzinach lub dniach.
-
----
-
-Masz teraz kompletny przepis w **jednolitym formacie** gotowy do włączenia do harmonogramu Wigilii i świąt.
-
-Jeśli chcesz, mogę teraz zrobić **pełną listę zakupów i harmonogram przygotowań wszystkich dań**, z podziałem między kuchnie i osoby. Chcesz, żebym to zrobił?

@@ -1,7 +1,3 @@
-Poniżej przepis przekształcony do **ustalonego formatu roboczego**, dopasowanego do pracy 2–3 osób.
-
----
-
 # Kluski z makiem – wersja na półmisek
 
 **Ilość:** dla ok. 13 osób
@@ -110,12 +106,3 @@ Poniżej przepis przekształcony do **ustalonego formatu roboczego**, dopasowane
 4. Delikatnie, ale dokładnie wymieszać.
 5. Odstawić na **10 minut**, aby smaki się połączyły.
 6. Przełożyć na półmisek i podawać.
-
----
-
-Gotowe.
-Jeśli to już wszystkie przepisy, w kolejnym kroku możemy:
-
-* 🛒 zrobić **jedną zbiorczą listę zakupów**,
-* ⏱️ ułożyć **harmonogram pracy (dzień −2 / −1 / Wigilia)**,
-* 🏠 rozpisać **kto i w której kuchni co robi**.
