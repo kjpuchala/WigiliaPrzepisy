@@ -1,7 +1,3 @@
-Poniżej przepis przekształcony do **tej samej, roboczej formy**, z myślą o pracy 2–3 osób.
-
----
-
 # Indyk w winie z zupą cebulową i śmietaną
 
 **Ilość:** ok. 13 porcji
@@ -117,8 +113,3 @@ Poniżej przepis przekształcony do **tej samej, roboczej formy**, z myślą o p
 2. Po upieczeniu zostawić w ciepłym piekarniku do lekkiego przestygnięcia.
 3. Przed podaniem pokroić mięso w plastry.
 4. Jeśli było studzone: podgrzać w piekarniku ok. **20 minut w 180°C**.
-
----
-
-Gotowe.
-👉 Wklej następny przepis — trzymamy ten sam format.

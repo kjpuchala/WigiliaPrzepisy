@@ -1,7 +1,3 @@
-Poniżej przepis przekształcony do **ustalonego formatu roboczego**, spójnego z resztą zestawu świątecznego.
-
----
-
 # Pierogi z kapustą kiszoną i opcjonalnie suszonymi grzybami
 
 **Ilość:** ok. 100 sztuk
@@ -129,9 +125,3 @@ Poniżej przepis przekształcony do **ustalonego formatu roboczego**, spójnego 
 2. Wrzucać pierogi partiami.
 3. Gotować do wypłynięcia, a następnie jeszcze **2–3 minuty**.
 4. Wyjmować łyżką cedzakową i odkładać na talerz lub tackę.
-
----
-
-Masz teraz kompletny przepis na pierogi z kapustą kiszoną i opcjonalnie grzybami w **jednolitym formacie**, gotowy do harmonogramu przygotowań.
-
-Jeżeli chcesz, mogę teraz zrobić **pełną zbiorczą listę zakupów i harmonogram przygotowań dla wszystkich pierogów i potraw świątecznych**, z podziałem na kuchnie i osoby. Chcesz, żebym to zrobił?

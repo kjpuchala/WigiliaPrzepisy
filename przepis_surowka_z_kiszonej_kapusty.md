@@ -1,7 +1,3 @@
-Poniżej przepis przekształcony do **ustalonego formatu roboczego**, spójnego z całością zestawu.
-
----
-
 # Surówka z kiszonej kapusty z żurawiną
 
 **Ilość:** 1 porcja łączna
@@ -106,8 +102,3 @@ Poniżej przepis przekształcony do **ustalonego formatu roboczego**, spójnego 
 2. Na Wigilię podać około **połowy surówki**.
 3. Resztę przechować w lodówce – na Boże Narodzenie smakuje jeszcze lepiej.
 4. Przed podaniem posypać natką pietruszki.
-
----
-
-Masz już kompletny zestaw przepisów w jednym formacie.
-Kiedy będziesz gotowy, przechodzimy do **organizacji całości** (zakupy, harmonogram, podział kuchni i osób).
