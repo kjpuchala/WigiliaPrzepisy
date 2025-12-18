@@ -1,7 +1,3 @@
-Poniżej przepis przekształcony do **ustalonego formatu roboczego**, spójnego z pozostałymi.
-
----
-
 # Karp wigilijny (filety smażone)
 
 **Ilość:** 3 małe porcje
@@ -95,8 +91,3 @@ Poniżej przepis przekształcony do **ustalonego formatu roboczego**, spójnego 
 1. Odsączyć rybę z nadmiaru tłuszczu na papierowym ręczniku.
 2. Podawać od razu z plasterkiem cytryny.
 3. Opcjonalnie udekorować natką pietruszki.
-
----
-
-Gotowe.
-Jeśli masz jeszcze przepisy, **podawaj dalej** — wszystkie już są w jednym, kompatybilnym formacie.

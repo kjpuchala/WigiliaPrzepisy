@@ -1,7 +1,3 @@
-Poniżej przepis przekształcony do **ustalonego formatu roboczego**, zgodnego z resztą zestawu świątecznego.
-
----
-
 # Piernik świąteczny (Podkarpacki styl)
 
 **Ilość:** 1 keksówka ok. 25 cm (~10–12 porcji)
@@ -131,13 +127,3 @@ Poniżej przepis przekształcony do **ustalonego formatu roboczego**, zgodnego z
 1. Po upieczeniu wyjąć piernik z formy i ostudzić na kratce.
 2. Opcjonalnie polać czekoladą roztopioną z masłem lub posypać cukrem pudrem.
 3. Najlepiej pozostawić do **przegryzienia smaków kilka dni** przed podaniem.
-
----
-
-Masz już wszystkie przepisy w **jednym, spójnym formacie** gotowym do:
-
-* harmonogramu prac,
-* podziału kuchni i osób,
-* sporządzenia wspólnej listy zakupów.
-
-Jeśli chcesz, mogę teraz **przygotować kompletną listę zakupów i harmonogram przygotowań pod Wigilię i święta**. Chcesz, żebym to zrobił?

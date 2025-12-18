@@ -1,7 +1,3 @@
-Poniżej przepis przekształcony do **ustalonego formatu roboczego**, spójnego z pozostałymi.
-
----
-
 # Kompot z suszu
 
 **Ilość:** ok. 3 litry (2 dzbanki po 1,5 l)
@@ -89,12 +85,3 @@ Poniżej przepis przekształcony do **ustalonego formatu roboczego**, spójnego 
 1. Najlepiej przygotować **dzień wcześniej**.
 2. Można przecedzić lub zostawić owoce w środku – według preferencji.
 3. Przed podaniem schłodzić lub podawać w temperaturze pokojowej.
-
----
-
-Gotowe.
-Jeśli to już **ostatni przepis**, w następnym kroku mogę przejść do:
-
-* 🛒 **zbiorczej listy zakupów ze wszystkich dań**,
-* ⏱️ **harmonogramu prac (kto, kiedy, w której kuchni)**,
-* 🍽️ optymalizacji kolejności gotowania pod Wigilię i święta.

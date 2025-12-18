@@ -1,7 +1,3 @@
-Poniżej przepis przekształcony do **ustalonego formatu roboczego**, spójnego z całością zestawu świątecznego.
-
----
-
 # Sernik baskijski
 
 **Ilość:** tortownica Ø 23 cm (~10–12 porcji)
@@ -95,14 +91,3 @@ Poniżej przepis przekształcony do **ustalonego formatu roboczego**, spójnego 
 2. Wstawić do lodówki na **minimum 8 godzin**.
 3. Jeśli wierzch nie jest wystarczająco skarmelizowany, opcjonalnie posypać cukrem pudrem i przy użyciu palnika do crème brûlée skarmelizować.
 4. Podawać schłodzony, bez dodatków.
-
----
-
-Masz teraz **pełny zestaw świątecznych przepisów** w jednolitym formacie.
-Mogę teraz zrobić:
-
-1. **Zbiorczą listę zakupów**,
-2. **Harmonogram przygotowań**,
-3. **Podział zadań między osoby i kuchnie**,
-
-aby wszystko było gotowe na Wigilię i święta. Chcesz, żebym to zrobił?

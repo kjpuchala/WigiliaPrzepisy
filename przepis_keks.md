@@ -1,7 +1,3 @@
-Poniżej przepis przekształcony do **ustalonego formatu roboczego**, zgodnego z pozostałymi.
-
----
-
 # Keks świąteczny
 
 **Ilość:** 1 keks (forma 25–28 cm, ok. 10–12 porcji)
@@ -130,8 +126,3 @@ Poniżej przepis przekształcony do **ustalonego formatu roboczego**, zgodnego z
 1. Po upieczeniu wyjąć keks z formy.
 2. Ostudzić na kratce.
 3. Opcjonalnie posypać cukrem pudrem lub polać lukrem.
-
----
-
-Gotowe.
-👉 Jeśli są jeszcze przepisy, wklejaj dalej — wszystkie już układają się w jeden spójny zestaw świąteczny.

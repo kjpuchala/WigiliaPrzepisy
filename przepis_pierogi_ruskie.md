@@ -1,7 +1,3 @@
-Poniżej przepis przekształcony do **ustalonego formatu roboczego**, spójnego z resztą zestawu świątecznego.
-
----
-
 # Pierogi ruskie – ciasto i farsz
 
 **Ilość:** ok. 150 sztuk
@@ -104,9 +100,3 @@ Poniżej przepis przekształcony do **ustalonego formatu roboczego**, spójnego 
 2. Wrzucać pierogi partiami.
 3. Gotować do wypłynięcia, a następnie jeszcze **2–3 minuty**.
 4. Wyjmować łyżką cedzakową i odkładać na talerz lub tackę.
-
----
-
-Masz teraz pełny przepis na pierogi ruskie w formacie gotowym do **podziału pracy między osoby i kuchnie**, idealny do harmonogramu Wigilii i świąt.
-
-Chcesz, żebym teraz zrobił **pełną zbiorczą listę zakupów i harmonogram przygotowań dla wszystkich przepisów**, łącznie z podziałem na 2 kuchnie i 2–3 osoby?
